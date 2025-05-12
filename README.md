@@ -1,0 +1,1 @@
+This repository contains my certifications from completed courses, workshops, and training programs. Each certificate reflects my commitment to continuous learning and growth in various areas of technology, character, and professional development.
